@@ -12,7 +12,7 @@
 
 ## About myself
 
-> Extremely motivated to constantly develop personal skills and grow professionally. Excited to be at the deployment phase of my new career as a web developer. I am ambitious, adventurous and assiduous. I have 9 month of Web Development Background
+> Extremely motivated to constantly develop personal skills and grow professionally. Excited to be at the deployment phase of my new career as a web developer. I am ambitious, adventurous and assiduous. I have 10 month of Web Development Background
 
 ## My knowledge and skills:
 
