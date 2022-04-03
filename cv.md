@@ -2,7 +2,7 @@
 
 ### Front-End Developer
 
-![My photo]("https://imgur.com/cT0YV8z")
+![My photo]("https://imgur.com/a/lQX431L")
 
 ## My Contacts:
 
